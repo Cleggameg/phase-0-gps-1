@@ -1,1 +1,1 @@
-We *are* ~~not~~ Professionals! ```We *are* **Sea Lions**``` http://infin80design.github.io/ http://cleggameg.github.io/
+We *are* ~~not~~ **Professionals**! ```We are Sea Lions``` http://infin80design.github.io/ http://cleggameg.github.io/
